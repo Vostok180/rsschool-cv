@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Vostok180.github.io/rsschool-cv/
